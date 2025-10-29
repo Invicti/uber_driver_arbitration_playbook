@@ -27,7 +27,7 @@ Sent from the email associated with my Uber driver account.
 
 ### 💡 Attribution
 Created by community contributors for transparency and fair access to driver rights.  
-Originally compiled by **Nicolas P. Fodor** (2025) — released for free use and public awareness under the **Creative Commons Attribution 4.0 License (CC BY 4.0)**.
+Originally compiled by **Driver House https://driver.house** (2025) — released for free use and public awareness under the **Creative Commons Attribution 4.0 License (CC BY 4.0)**.
 
 ---
 
